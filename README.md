@@ -3,10 +3,7 @@
 FOR IMMEDIATE RELEASE
 
 Date: [Date]
-Contact: [Spokesperson's Name]
-Phone: [Spokesperson's Phone]
-Email: [Spokesperson's Email]
-Website: [Party Website]
+Contact: akhilesh yadav
 
 Akhilesh Yadav Affirms Commitment to Equality and Inclusivity, Calls for Reforms to Section 377
 
@@ -28,7 +25,7 @@ Yadav's key points regarding Section 377 include:
 
 Akhilesh Yadav firmly believes that a progressive and inclusive society is built on principles of equality, dignity, and respect for all. He stands with the LGBTQ+ community and calls upon lawmakers and society as a whole to join in this pursuit of justice and inclusivity.
 
-For media inquiries or to arrange an interview with Mr. Akhilesh Yadav, please contact [Spokesperson's Name] at [Spokesperson's Phone] or [Spokesperson's Email].
+For media inquiries or to arrange an interview with Mr. Akhilesh Yadav
 
 About Akhilesh Yadav:
 Akhilesh Yadav is a prominent political leader in India, known for his commitment to social justice and progress. He served as the Chief Minister of Uttar Pradesh and has consistently advocated for inclusive policies that benefit all segments of society.
