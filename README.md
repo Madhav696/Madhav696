@@ -2,7 +2,6 @@
 
 FOR IMMEDIATE RELEASE
 
-Date: [Date]
 Contact: akhilesh yadav
 
 Akhilesh Yadav Affirms Commitment to Equality and Inclusivity, Calls for Reforms to Section 377
